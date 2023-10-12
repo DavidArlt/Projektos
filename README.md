@@ -1,2 +1,2 @@
-# Projektos<3 pongos
+# Pongos Projektos<3 
 EP2 projekt
